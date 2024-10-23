@@ -20,3 +20,4 @@ My skills: <br>
 Here are other channels where you can contact me: <br>
 Email: rizo.tnt@gmail.com <br>
 Linkedin: https://www.linkedin.com/in/gabriel-rizo-galv%C3%A1n-37b96b224/
+Instagram: https://www.instagram.com/gabo.rizo/?hl=es-la
